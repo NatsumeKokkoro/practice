@@ -1,0 +1,2 @@
+gdahdlahldjalifdhyakd
+なんて日本語表示されないの？
