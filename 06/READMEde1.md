@@ -1,2 +1,2 @@
 gdahdlahldjalifdhyakd
-なんて日本語表示されないの？
+なんて日本語表示されないの？konnnichiwa
